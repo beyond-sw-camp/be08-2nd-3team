@@ -1,1 +1,1 @@
-# be08-2nd-BanpoXii
+# be08-2nd-BanpoXii-Waruru
